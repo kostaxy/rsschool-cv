@@ -1,1 +1,1 @@
-# rsschool-cv
+https://kostaxy.github.io/rsschool-cv/cv
